@@ -57,8 +57,8 @@ Passionate about **Web Dev, App Dev, Cybersecurity, AI**
 ---
 
 ## 📫 Contact
-- **Email:** yourmail@example.com  
-- **LinkedIn:** (ใส่ลิงก์ถ้ามี)
+- **Email: zoomza1515za@gmail.com  
+- **Tell: 0840177505** 
 
 ---
 
